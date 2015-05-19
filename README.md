@@ -1,2 +1,2 @@
 # projektet
-Projektet - what will it be? Who knows?
+Projektet - what will it be?
